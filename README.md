@@ -1,3 +1,4 @@
+Part 1 Overview
  Sneaker Mode is a trendy platform established in 2019 by Nwabisa Faith Memani. Originally introduced via social media sites such as 
  TikTok and Facebook, the brand rapidly transformed into a key destination for sneaker fans, collectors, and streetwear culture.
  
